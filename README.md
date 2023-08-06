@@ -1,2 +1,0 @@
-# SELAM BEBBEKKKK
-
